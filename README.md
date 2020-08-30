@@ -21,6 +21,6 @@ Thesis of Master 1 in graphic design, March 2020, La Martinière Diderot
 
 Written and designed by Laura Swietlicki.
 
-This thesis is owned solely by Laura Swietlicki. The text, the graphs the layout are protected by the intellectual property, and belong to Laura Swietlicki. Modification, sale or reproduction of the content of this document, totally or partially, are prohibited without the written permission of the author.
+This thesis is owned solely by Laura Swietlicki. The text, the graphs and the layout are protected by the intellectual property, and belong to Laura Swietlicki. Modification, sale or reproduction of the content of this document, totally or partially, are prohibited without the written permission of the author.
 
 Have a good reading
